@@ -1,0 +1,3 @@
+- **Reference ⬇️**
+  - [reference image](https://www.vecteezy.com/vector-art/13970912-abstract-black-ink-splash-background-grunge-vector-design-template-paint-brush)
+  - [Online tutorials video Inspiration](https://youtu.be/lBK_kh4iCAQ?si=27Mm3ooSF4qu9v7H)
